@@ -1,2 +1,0 @@
-# Aliyan
-FREE CAMMAND
